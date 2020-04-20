@@ -1,1 +1,0 @@
-# shchepetovamaria.github.io
